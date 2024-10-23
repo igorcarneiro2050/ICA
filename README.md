@@ -1,0 +1,1 @@
+Local detinado para aprendizado
